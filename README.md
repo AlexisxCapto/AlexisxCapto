@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AlexisxCapto
+- 👀 I’m interested in Automation
+- 🌱 I’m currently learning everyday
+- 💞️ I’m looking to collaborate on Capto Mission
+- 📫 How to reach me: alexis.chevallot@wearecapto.com
