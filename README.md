@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @AlexisxCapto
-- 👀 I’m interested in Automation
-- 🌱 I’m learning more everyday
-- 💞️ I’m looking to collaborate on Capto Mission
+- 👋 Hi, I’m @AlexisxCapto - I am building an automation business to free people from boring stuffs. I am on [LinkedIn](https://www.linkedin.com/in/alexischevallot/)
+- 👀 I’m passionated about Automation! This is to me one of the exciting parts of the future ;) 
+- 🌱 I’m learning more everyday about automation but not only... don't hesitate to teach me things :)
+- 💞️ I’m looking to collaborate on Capto Mission with people who like the above lines
 - 📫 How to reach me: alexis.chevallot@wearecapto.com
